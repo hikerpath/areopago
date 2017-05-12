@@ -1,2 +1,0 @@
-# areopago
-"Amat Victoria Curam
